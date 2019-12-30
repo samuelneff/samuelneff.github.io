@@ -12,4 +12,4 @@ https://www.azurepath.com/supportintegrations.html
 https://www.azurepath.com/supporttermsandfaqs.html
 https://www.azurepath.com/terms.html
 https://www.azurepath.com/importhelp.html
-https://signup.azurepath.com
+/
