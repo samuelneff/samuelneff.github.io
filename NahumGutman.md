@@ -1,7 +1,7 @@
 Nahum Gutman
 ===
 
-![Uploading PXL_20211226_225012083.jpg…]()
+![https://photos.app.goo.gl/GZqyqPxSvWJhBtQr8]()
 
 Auction March 30, 2022
 ==
