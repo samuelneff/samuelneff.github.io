@@ -1,7 +1,7 @@
 Nahum Gutman
 ===
 
-![https://ibb.co/RYLg169]()
+![Nahum Gutman](https://ibb.co/RYLg169)
 
 Auction March 30, 2022
 ==
