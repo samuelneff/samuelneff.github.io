@@ -1,7 +1,7 @@
 Nahum Gutman
 ===
 
-![https://photos.app.goo.gl/GZqyqPxSvWJhBtQr8]()
+![https://ibb.co/RYLg169]()
 
 Auction March 30, 2022
 ==
